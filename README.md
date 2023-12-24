@@ -10,4 +10,4 @@
 
 ## Bilibili `字节徐行`
 
-[https://www.bilibili.com/video/BV14G411k7Qm/](https://www.bilibili.com/video/BV14G411k7Qm/)
+[https://www.bilibili.com/video/BV1yK41187Cq/](https://www.bilibili.com/video/BV1yK41187Cq/)
